@@ -1,2 +1,1 @@
-# notwayra.github.io
-# hi
+# Teddy gay
